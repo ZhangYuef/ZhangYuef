@@ -7,6 +7,6 @@
 
 The host behind is:
 
-- Digging the earth 🌏
+- Digging the Earth 🌏
 - Building the rocket 🚀
 - Feeding the 🐹 & 🐱
