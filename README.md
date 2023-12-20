@@ -9,4 +9,4 @@ The host behind is:
 
 - Digging the earth 🌏
 - Building the rocket 🚀
-- 🐹 🐱 🐼
+- Feeding the 🐹 & 🐱
